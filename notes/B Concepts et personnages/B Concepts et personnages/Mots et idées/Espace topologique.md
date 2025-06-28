@@ -1,0 +1,5 @@
+
+>  Ainsi, lesdits génies inventaient-ils des formes, architectes, sculpturales, picturales, littéraires ou philosophiques.
+> N'essayez plus, comme eux, de changer de formes, car vous venez de recevoir une métamorphose de l'espace sous les formes. Car l'espace les conditionne toutes, en déterminant leur changement. Autrement dit, nous vous léguons un nouveau transcendantal.
+> Non, votre écran ne remplace ni ne reproduit votre vieille planche sur laquelle vous travailliez à dessiner. Son électronique translucidité mime ce nouvel espace, exactement celui où nous habitons. Saviez-vous, amis architectes, urbanistes, projeteurs, paysagistes..., que nous habitions toujours le transcendantal? De cet habitat nouveau, les nouvelles œuvres naîtront. Je m'évertue, par exemple, à construire, dans mes livres, sur cet espace-là précisément, un hypertexte philosophique. Ne vous laissez donc point absorber par quelque dessin, toujours trop ancien, mais interrogez pensivement cet éclat blanc. De lui sortiront les prochaines inventions.
+[[Habiter 1]], p. 146

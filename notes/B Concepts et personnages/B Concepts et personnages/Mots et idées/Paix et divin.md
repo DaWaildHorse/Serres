@@ -1,0 +1,3 @@
+L'idée de Dieu est nécessaire à la paix, car elle Le place au plus haut et lui confère une Gloire indépassable, incomparable, qui échappe à la logique de la concurrence et de la violence mimétique. A condition que ce Dieu soit unique, car les Dieux du polythéisme sont aussi chamailleurs que les hommes.
+
+> *Gloire à Dieu au plus haut des cieux et paix sur la terre* à ceux qui, avec les bergers, nos humbles ancêtres deux fois millénaires, décidèrent soudain de consacrer le reste de leur vie à la Musique, pour louer la gloire de cet Absent, nécessaire à notre survie, quoique indémontrable.

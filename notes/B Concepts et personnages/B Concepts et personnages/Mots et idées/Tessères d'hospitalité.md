@@ -1,0 +1,7 @@
+En Grèce, on nomme *symbolon* un signe de reconnaissance obtenu en brisant en deux un objet, souvent un tesson de poterie. Chaque contractant emporte un morceau. Pour liquider le contrat, chacun doit produire son *symbolon*, qui doit s’emboiter parfaitement à celui du co-contractant.  
+  
+![Tessère d'hospitalité](http://www.jean-claude-bologne.com/images/symbolon.jpg)  
+
+Le tessère d'hospitalité remplit le même rôle, de façon plus sophistiquée. C'est un objet fabriqué, en ivoire, en bois... comportant deux parties qui s'emboitent parfaitement l'une dans l'autre. Il peut prendre des formes diverses (main, poisson, tête de bélier...) et contenir, sur la partie non sculptée, les noms des contractants. Il est produit en signe de reconnaissance d'un pacte public ou privé. Les hôtes (xénoi) sont liés par un devoir d'accueil (logement, repas le premier soir, provisions pour les autres jours, cadeau de départ) formalisé par le tessère. Lorsque le pacte de solidarité est rompu, les deux parties du tessère sont brisés. Le tessère d'hospitalité publique peut se conclure entre deux villes, entre deux peuples, ou entre un citoyen et un autre peuple."
+
+(Source: http://www.jean-claude-bologne.com/symbolon.html)

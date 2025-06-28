@@ -1,0 +1,5 @@
+Il existe un passage entre les sciences exactes et les sciences humaines: le passage est rare et resserre […] Des sciences humaines aux sciences exactes, ou inversement, le chemin ne traverse pas un espace homogène et vide. La métaphore de cet archipel extraordinairement compliqué du Grand Nord canadien, encombré le plus souvent de glaces, est exacte. Le plus souvent, le passage est fermé, soit par terres, soit par glaces, soit aussi parce qu’on se perd. Et si le passage est ouvert, c’est le long d’un chemin difficile à prévoir. Et singulier, le plus souvent.
+
+![[Passage du Nord-Ouest.png]]
+
+"Serres's major interest is the parallel development of scientific, philosophical, and literary trends. In a very simplified manner, one might say that Serres always runs counter to the prevalent notion of the two cultures -scientific and humanistic-between which no communication is possible. In Serres's view 'criticism is a generalized physics,' and whether knowledge is written in philosophical, literary, or scientific language it nevertheless articulates a common set of problems that transcends academic disciplines and artificial boundaries."

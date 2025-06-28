@@ -1,0 +1,1 @@
+Platon appelle, dans le *Timée*, la *chôra*, l'espace, la matrice, le réceptacle de tout devenir, d'où émerge la nouveauté. (retourner à [[Genèse, noise, remède et poison]])

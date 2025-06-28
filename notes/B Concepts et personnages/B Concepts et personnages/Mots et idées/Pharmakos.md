@@ -1,0 +1,1 @@
+(voir: https://fr.wikipedia.org/wiki/Pharmakos#:~:text=Le%20mot%20a%20fini%20par,%C3%A9tait%20parfois%20mis%20%C3%A0%20mort).

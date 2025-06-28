@@ -1,0 +1,3 @@
+Je suis en situation d'interférence. Je suis le siège d'une pluralité d'échanges ou d'interceptions. Nœud polytopique, point de rencontre d'une multiplicité de réseaux matériels et informationnels, mobile, l'individu est une intersection, et de cette définition s'inspire la réponse du philosophe à la question que faire ? ou comment être ? : Qui êtes-vous donc ? L'intersection, fluctuante par la durée, de cette variété, nombreuse et bien singulière, de genres divers.
+
+Vous ne cessez de recoudre et tisser votre propre manteau d'Arlequin, aussi nué ou bariolé que la carte de vos gènes. L’emblème du corps c’est alors le manteau d’arlequin.

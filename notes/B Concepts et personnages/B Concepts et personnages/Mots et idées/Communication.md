@@ -1,0 +1,1 @@
+Leçon leibnizienne : la communication optimale n’est pas l’unisson, mais une harmonie saturée de différences ? 

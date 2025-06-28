@@ -1,0 +1,4 @@
+Ponts, symboles, tessères
+Le *metaxu* : pont, intermédiaire, juste milieu, dans un sous-ensemble flou. Pour Simone Weil, le terme renvoie à ce qui sépare et relie à la fois, comme le mur entre deux prisonniers, qu'ils peuvent frapper pour communiquer entre eux. Un _metaxu_ est l'équivalent d'un pont, d'un seuil et de tout intermédiaire qui établit une médiation. 
+
+Nos corps sont des [[Tessères d'hospitalité|tessères d'hospitalité]]. Je porte sur moi et en moi le symbole. L'autre porte sur lui et en lui le symbole complémentaire, le fragment, stéréospécifique, qui s’emboîte avec le mien, tessère d’échange, trait d’union.
